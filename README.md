@@ -1,11 +1,11 @@
-**- 👋 Hi, I’m usamanaeem the founder of Digitaliner (Digital Marketing and Ecommerce Agency)
+- 👋 Hi, I’m usamanaeem the founder of Digitaliner (Digital Marketing and Ecommerce Agency)
 - 👀 We provide professional services in E-commerce, espacially Amazon, and digital marketing
 - 🌱 We have ranked many websites on top position and helped many businesses to extabish thier online presence and outrank thier competitors
 - 🌱 We have helped multiple businesses to increase the website traffic, leads and sales.
-- 💞️ I’m looking to collaborate on Upwork, fiverr insta Facebook and other platforms**
+- 💞️ I’m looking to collaborate on Upwork, fiverr insta Facebook and other platforms
 - 📫 How to reach me
   
-**https://digitaliner.com/
+https://digitaliner.com/
 
 Usamanaeem7005@gmail.com
 
@@ -15,4 +15,4 @@ https://www.fiverr.com/usamanaeem_ch?up_rollout=true
 
 https://www.facebook.com/usamanaeem11/
 
-https://www.instagram.com/uxama_naeem/**
+https://www.instagram.com/uxama_naeem/
